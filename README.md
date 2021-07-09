@@ -1,0 +1,1 @@
+# -apt-update-apt-upgrade--y-wget-https-raw.githubusercontent.com-VPS-MX-VPS-MX_Oficia-
